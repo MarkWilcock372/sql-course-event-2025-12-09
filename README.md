@@ -1,0 +1,1 @@
+# sql-course-event-2025-12-09
